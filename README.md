@@ -6,6 +6,8 @@
   <img src="https://files.catbox.moe/4w0d5q.jpg"width="500" height="575">
   <br>
   <p align="center">
-if u see this theres a chance im on dat #NULLSCAPEGRIND
+Art by me ☺ dats my skinwalker sona ok?
       <p align="center">
-That's my Skinwalker sona too btw be nice to it
+if u see this then there's a chance im on #NULLSCAPE 
+         <p align="center">
+   <img src="https://files.catbox.moe/ralad2.png"width="50" height="575">
