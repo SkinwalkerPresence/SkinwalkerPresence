@@ -8,6 +8,6 @@
   <p align="center">
 Art by me ☺ dats my skinwalker sona ok?
       <p align="center">
-if u see this then there's a chance im on #NULLSCAPE 
+if u see this then that means i could be on #NULLSCAPE 
          <p align="center">
    <img src="https://files.catbox.moe/ralad2.png"width="50" height="575">
