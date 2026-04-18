@@ -6,7 +6,7 @@
   <img src="https://files.catbox.moe/4w0d5q.jpg"width="450" height="25">
   <br>
   <p align="center">
-Art by me ☺ dats my skinwalker sona ok?
+Art by me ☺ dats my husk sona ok?
       <p align="center">
 if u see this then that means i could be on #NULLSCAPE 
          <p align="center">
